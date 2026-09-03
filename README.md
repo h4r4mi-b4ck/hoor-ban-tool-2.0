@@ -1,0 +1,1 @@
+# hoor.whatsapp.ban
